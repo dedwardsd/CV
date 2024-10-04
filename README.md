@@ -1,2 +1,2 @@
 # CV
-My CV for potential Employers viewing
+My CV for potential Employers
